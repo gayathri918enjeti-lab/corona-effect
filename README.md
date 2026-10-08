@@ -1,1 +1,0 @@
-# corona-effect
